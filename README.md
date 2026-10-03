@@ -1,4 +1,4 @@
-⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=969e89&style=plastic&label=goldenboy)࿐ྂ
+⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=b4f06e&style=plastic&label=goldenboy)࿐ྂ
 <img width="736" height="245" alt="Image" src="https://github.com/user-attachments/assets/d172325a-3a9f-4bef-b8cb-546f2d5585b6" />
 <div align="center">
   ════ ⋆★⋆ ════
