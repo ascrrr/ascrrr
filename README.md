@@ -1,9 +1,9 @@
-⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=db7939&style=plastic&label=kangaroo)࿐ྂ
-<img width="736" height="314" alt="Image" src="https://github.com/user-attachments/assets/ed0ac9f9-ed16-459e-ae6b-0ac3ff71fc4c" />
+⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=b4f06e&style=plastic&label=alcoholic)࿐ྂ
+<img width="736" height="245" alt="Image" src="https://github.com/user-attachments/assets/d172325a-3a9f-4bef-b8cb-546f2d5585b6" />
 <div align="center">
   ════ ⋆★⋆ ════
  </div>
-<img width="734" height="240" alt="Image" src="https://github.com/user-attachments/assets/80dab2bf-f137-4448-b042-d25aee151aba" />
+<img width="736" height="420" alt="Image" src="https://github.com/user-attachments/assets/d42417ef-cd5b-48cf-a8e6-8ad27cda8ed1" />
 <div align="center">
  
   <p> 𝑰 𝒔𝒂𝒊𝒅, "𝑫𝒐 𝒚𝒐𝒖 𝒔𝒑𝒆𝒂𝒌 𝒎𝒚 𝒍𝒂𝒏𝒈𝒖𝒂𝒈𝒆?"
