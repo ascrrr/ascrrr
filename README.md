@@ -1,18 +1,22 @@
-⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=b4f06e&style=plastic&label=monster)࿐ྂ
+⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=6b8283&style=plastic&label=kangaroo) જ⁀➴ ☀︎
 
-<img width="736" height="245" alt="Image" src="https://github.com/user-attachments/assets/d172325a-3a9f-4bef-b8cb-546f2d5585b6" />
-<div align="center">
-  ════ ⋆★⋆ ════
- </div>
-<img width="736" height="420" alt="Image" src="https://github.com/user-attachments/assets/d42417ef-cd5b-48cf-a8e6-8ad27cda8ed1" />
+<img width="728" height="480" alt="Image" src="https://github.com/user-attachments/assets/ff12c743-722f-4951-848c-b0386e67e0d3" />
+<div align="center"> 
+  ─﹒﹒★﹒──────────"
+</div> 
+<img width="736" height="245" alt="Image" src="https://github.com/user-attachments/assets/ba73f028-46c4-4f35-bcef-73ead6ae47dc" />
 <div align="center">
  
-  <p>  𝑰'𝒎 𝒃𝒓𝒊𝒏𝒈𝒊𝒏 𝒔𝒆𝒙𝒚 𝒃𝒂𝒄𝒌, ` 𝒚𝒆𝒂𝒉
-  
-  𝒕𝒉𝒆𝒎 𝒐𝒕𝒉𝒆𝒓 𝒇𝒖𝒄𝒌𝒆𝒓𝒔 𝒅𝒐𝒏'𝒕 𝒌𝒏𝒐𝒘 𝒉𝒐𝒘 𝒕𝒐 𝒂𝒄𝒕, ` 𝒚𝒆𝒂𝒉</p>
+  <p>  "𝑰'𝒎 𝒏𝒐𝒕 𝒆𝒎𝒐𝒕𝒊𝒐𝒏𝒍𝒆𝒔𝒔. 
+ 
+  𝑰'𝒎 𝒔𝒕𝒊𝒍𝒍 𝒉𝒂𝒗𝒆 𝒉𝒂𝒑𝒑𝒚 𝒎𝒐𝒎𝒆𝒏𝒕𝒔, 𝒂𝒏𝒈𝒓𝒚 𝒎𝒐𝒎𝒆𝒏𝒕𝒔, 𝒇𝒓𝒖𝒔𝒕𝒓𝒂𝒕𝒆𝒅 𝒎𝒐𝒎𝒆𝒏𝒕𝒔.
+ 
+  𝑰'𝒎 𝒐𝒏𝒍𝒚 𝒉𝒖𝒎𝒂𝒏. " 
+ 
+  — 𝑶𝒔𝒄𝒂𝒓 𝑱𝒂𝒄𝒌 𝑷𝒊𝒂𝒔𝒕𝒓𝒊 </p>
  </div>
  <div align="center">
- ─── ⋆⋅·𖥸·⋅⋆ ─ ⋆⋅·𖥸·⋅⋆ ─⋆⋅·𖥸·⋅⋆ ───
+ ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
  </div>
  <div align="center">
  ⋆  𝒄+𝒉, 𝒘2𝒊 ⋆ 
