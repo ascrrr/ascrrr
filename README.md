@@ -13,8 +13,5 @@
   — 𝑶𝒔𝒄𝒂𝒓 𝑱𝒂𝒄𝒌 𝑷𝒊𝒂𝒔𝒕𝒓𝒊 </p>
  </div>
  <div align="center">
- ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
- </div>
- <div align="center">
  ⋆  𝒄+𝒉, 𝒘2𝒊 ⋆ 
 </div>
