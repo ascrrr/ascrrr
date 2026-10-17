@@ -1,4 +1,4 @@
-⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=6b8283&style=plastic&label=kangaroo) જ⁀➴ ☀︎
+![](https://komarev.com/ghpvc/?username=ascrrr&color=6b8283&style=plastic&label=kangaroo)
 
 <img width="728" height="480" alt="Image" src="https://github.com/user-attachments/assets/ff12c743-722f-4951-848c-b0386e67e0d3" />
 
