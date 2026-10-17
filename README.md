@@ -1,10 +1,7 @@
 ⇢ ˗ˏˋ![](https://komarev.com/ghpvc/?username=ascrrr&color=6b8283&style=plastic&label=kangaroo) જ⁀➴ ☀︎
 
 <img width="728" height="480" alt="Image" src="https://github.com/user-attachments/assets/ff12c743-722f-4951-848c-b0386e67e0d3" />
-<div align="center"> 
-  ─﹒﹒★﹒──────────"
-</div> 
-<img width="736" height="245" alt="Image" src="https://github.com/user-attachments/assets/ba73f028-46c4-4f35-bcef-73ead6ae47dc" />
+
 <div align="center">
  
   <p>  "𝑰'𝒎 𝒏𝒐𝒕 𝒆𝒎𝒐𝒕𝒊𝒐𝒏𝒍𝒆𝒔𝒔. 
